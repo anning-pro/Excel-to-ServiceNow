@@ -1,5 +1,5 @@
 ★操作ビデオ
-https://youtu.be/vgpnLRDlqa4
+https://www.youtube.com/watch?v=pAPkLN6dUDw
 
 日本語版：ユーザーガイドおよびExcel仕様書
 
